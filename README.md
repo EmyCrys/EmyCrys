@@ -12,4 +12,4 @@ Meu nome é Emilly
 - @emy._.cris
 
 
-![](https://tenor.com/pt-BR/view/uncanny-cat-gif-gif-5505691000651065376)
+![](https://media.tenor.com/TGgky3DfKCAAAAAC/uncanny-cat-gif.gif)

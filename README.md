@@ -6,7 +6,7 @@ Meu nome é Emilly
 - Estou me desenvolvendo na linguagem de JavaScript
 - Gosto de desenhar 🖌️
 - Adoro gato e doramas 🐱
-- Namoro uma garoto muito incrível!👩‍❤️‍👨
+- Namoro um garoto muito incrível!👩‍❤️‍👨
 - Irei compartilhar as minhas evoluções e os meus projetos.
 
 - Se quiser converdsr comigo entre em contato.

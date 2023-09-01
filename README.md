@@ -1,4 +1,4 @@
-### Bem vindo(a) 🙂
+### Bem vindo(a) 🐱
 
 Meu nome é Emilly
 

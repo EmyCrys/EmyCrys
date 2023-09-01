@@ -2,7 +2,7 @@
 
 Meu nome é Emilly
 
-- Estou estudando no Alura;
+- Estou estudando no Alura [Alura] (https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem de JavaScript
 - Gosto de desenhar 🖌️
 - Adoro gato e doramas 🐱

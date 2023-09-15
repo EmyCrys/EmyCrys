@@ -9,7 +9,7 @@ Meu nome é Emilly
 - Namoro um garoto muito incrível!👩‍❤️‍👨
 - Irei compartilhar as minhas evoluções e os meus projetos.
 
-- Se quiser converdsr comigo entre em contato.
+- Se quiser conversar comigo entre em contato.
 - @emy._.cris
 
 
